@@ -5,6 +5,10 @@
 
 -eu quero ajudar a todos que tem problemas com codigos e muito mais
 
--eu gosto de tanques de guerra  
+-eu gosto de tanques de guerra  como esse  rheinmetall scorpion G
+
+
+![](https://media.tenor.com/pi2fYoTdrAQAAAAi/skorpion-tank.gif)
+
 
 -tenha um bom dia 🌞
